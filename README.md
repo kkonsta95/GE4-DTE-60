@@ -25,6 +25,12 @@ Genç, K., Türkay, O., & Ulema, Ş. (2022). Tourism gentrification: Barcelona a
   Υπολογισμός της φέρουσας τουριστικής ικανότητας: Θα πρέπει να υπολογιστούν οι διαθέσιμες κλίνες. https://www.researchgate.net/publication/338503899_Venice_and_Overtourism_Simulating_Sustainable_Development_Scenarios_through_a_Tourism_Carrying_Capacity_Model
 
 
+
+ΣΥΜΠΕΡΑΣΜΑ
+
+Απαιτείται στρατηγικός σχεδιασμός και συνεργασία των εμπλεκόμενων μεταξύ τους φορέων, προκειμένου να υιοθρτηθούν πρακτικές για την άμβλυνση του υπερτουρισμού. Μια πρακτική θα μπορούσε να περιλαμβάνει τη ρύθμιση των συνθηκών λειτουργίας των
+
+
 Bertocchi, D., & Camatti, N. (2022). Tourism in Venice: Mapping overtourism and exploring solutions. In A Research Agenda for Urban Tourism. https://doi.org/10.4337/9781789907407.00013
 
 Campisi, D., Costa, R., & Mancuso, P. (2010). The Effects of Low Cost Airlines Growth in Italy. Modern Economy, 1(2). https://doi.org/10.4236/me.2010.12006
