@@ -52,6 +52,9 @@ Bertocchi, D., & Camatti, N. (2022). Tourism in Venice: Mapping overtourism and 
 
 Campisi, D., Costa, R., & Mancuso, P. (2010). The Effects of Low Cost Airlines Growth in Italy. Modern Economy, 1(2). https://doi.org/10.4236/me.2010.12006
 
+
+Dodds, R., & Butler, R. W. (2019). The phenomena of overtourism: A review. International Journal of Tourism Cities, Vol 5 No. 4, pp. 519-528. https://doi.org/10.1108/IJTC-06-2019-0090
+
 https://www.researchgate.net/publication/370753083_Tourism_in_Venice_mapping_overtourism_and_exploring_solutions
 
 
